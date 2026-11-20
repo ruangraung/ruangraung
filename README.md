@@ -23,7 +23,7 @@ Linux and macOS, and opinions about both. I would rather read a tool's source th
 
 ## One cat 🐈
 
-Full name: Nirvana's - Molly's Lip.mp3 😂 (Inspired by [Nirvana's song](https://www.youtube.com/watch?v=sIg1ApHMO2E). Originally composed by The Vaselines)
+Full name: Nirvana - Molly's Lip.mp3 😂 (Inspired by [Nirvana's song](https://www.youtube.com/watch?v=sIg1ApHMO2E). Originally composed by The Vaselines)
 
 Nickname: Molly 😆
 
